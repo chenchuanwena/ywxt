@@ -9,7 +9,7 @@
 
 需要系统请联系微信客服：chenchuanwen123456
 联系电话：18305954587
-扫码加入下面微信群
+演示体验扫码加入下面微信群
 ![约玩群聊二维码](https://github.com/chenchuanwena/ywxt/assets/7508749/654cc693-36e4-4cee-b33a-742627aa5d2d)
 
 
